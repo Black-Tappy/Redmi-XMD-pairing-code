@@ -1,1 +1,1 @@
-# Redmi-XMD-pairing-code
+#Session Generator by 🅑r̸𝐢𝖌𝖍t̸_×͜×😎⭐
